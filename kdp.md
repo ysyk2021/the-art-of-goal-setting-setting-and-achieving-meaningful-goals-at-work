@@ -39,5 +39,5 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Problem-solving techniques
 18. Continuous learning
 19. Mental health and well-being
-20. Team collaboration.
+20. Team collaboration
 
