@@ -1,5 +1,3 @@
-Dealing with Negative Attitudes and Behavior
-================================================================================================
 
 In the pursuit of achieving goals, it's common to encounter negative attitudes and behavior that can hinder progress. Whether it's procrastination, lack of motivation, or self-doubt, these barriers can prevent individuals from achieving their objectives. In this chapter, we will explore strategies for overcoming barriers to goal achievement by dealing with negative attitudes and behavior.
 

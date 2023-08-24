@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Goal Setting
-==================================================================================
 
 Goal setting is a powerful tool for achieving success at work, but everyone has their own approach to setting and achieving goals. In this chapter, we will explore how to assess your personal approach to goal setting and identify ways to optimize it.
 

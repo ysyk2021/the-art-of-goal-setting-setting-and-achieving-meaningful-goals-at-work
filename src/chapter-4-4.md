@@ -1,5 +1,3 @@
-Aligning Goals with Organizational Objectives
-===================================================================================
 
 Planning meaningful goals involves aligning individual and team objectives with organizational objectives. In this chapter, we will explore strategies for aligning goals with organizational objectives to ensure that employees are making progress towards achieving their objectives.
 

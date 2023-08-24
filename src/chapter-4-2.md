@@ -1,5 +1,3 @@
-Developing SMART Goals
-============================================================
 
 Developing SMART goals is a powerful way to ensure that goals are specific, measurable, achievable, relevant, and time-bound. In this chapter, we will explore strategies for developing SMART goals to achieve meaningful objectives in the workplace.
 

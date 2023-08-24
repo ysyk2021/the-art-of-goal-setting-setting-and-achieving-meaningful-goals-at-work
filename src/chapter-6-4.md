@@ -1,5 +1,3 @@
-Celebrating Successes and Recognizing Accomplishments
-================================================================================================
 
 Measuring progress and results is critical for achieving success in the workplace. In this chapter, we will explore strategies for measuring progress and results, celebrating successes, and recognizing accomplishments.
 

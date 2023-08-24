@@ -1,5 +1,3 @@
-Managing Change and Uncertainty
-===================================================================================
 
 In today's fast-paced work environment, change and uncertainty are constant challenges that can hinder progress towards achieving goals. In this chapter, we will explore strategies for managing change and uncertainty as barriers to goal achievement.
 

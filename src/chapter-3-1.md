@@ -1,5 +1,3 @@
-Techniques for Cultivating a Goal Setting Mindset
-===============================================================================================
 
 Developing a goal setting mindset is essential for achieving success at work. It involves cultivating a positive attitude and a commitment to setting and achieving meaningful goals. In this chapter, we will explore techniques for developing a goal setting mindset.
 

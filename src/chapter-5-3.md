@@ -1,5 +1,3 @@
-Breaking Down Goals into Manageable Steps
-================================================================================
 
 Breaking down goals into manageable steps is essential for executing goals with focus and achieving success in the workplace. In this chapter, we will explore strategies for breaking down goals into manageable steps to ensure that employees are making progress towards achieving their objectives.
 

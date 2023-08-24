@@ -1,5 +1,3 @@
-Overcoming Procrastination and Distractions
-==================================================================================
 
 Executing goals with focus is critical for achieving success at work. However, procrastination and distractions can derail even the most well-planned goals. In this chapter, we will explore some strategies for overcoming procrastination and distractions to execute your goals with focus.
 

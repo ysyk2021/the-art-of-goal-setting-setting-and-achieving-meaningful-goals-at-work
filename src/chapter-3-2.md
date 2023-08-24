@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-============================================================================================
 
 Developing a goal setting mindset involves utilizing positive self-talk and visualization to stay focused, motivated, and confident towards achieving objectives. In this chapter, we will explore strategies for incorporating positive self-talk and visualization into the goal setting process.
 

@@ -1,5 +1,3 @@
-Overview of Goal Setting
-==========================================================
 
 Goal setting is the process of identifying specific objectives and creating a plan to achieve them. It's an essential tool for achieving success at work, as it helps you stay focused, motivated, and accountable for your progress.
 

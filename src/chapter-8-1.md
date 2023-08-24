@@ -1,5 +1,3 @@
-Encouraging Goal Setting Across the Organization
-===============================================================================================
 
 Building a culture of goal setting is critical for achieving success in any organization. In this chapter, we will explore strategies for encouraging goal setting across the organization and fostering a culture of continuous improvement and growth.
 

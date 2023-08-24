@@ -1,5 +1,3 @@
-Chapter 6: Measuring Progress and Results
-=========================================
 
 Measuring progress and results is critical for achieving success in goal setting. It involves tracking progress, developing effective monitoring and evaluation systems, reflecting on progress and learning from experience, and celebrating successes and recognizing accomplishments. In this chapter, we will explore these elements of measuring progress and results.
 

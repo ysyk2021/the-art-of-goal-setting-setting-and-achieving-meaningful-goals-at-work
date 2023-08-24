@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Goal Setting
-====================================================================================================
 
 Developing empathy and compassion in the workplace is essential for building a supportive and collaborative work environment. In this chapter, we will explore how goal setting can promote the development of empathy and compassion, and how these qualities can contribute to achieving meaningful goals.
 

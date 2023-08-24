@@ -1,5 +1,3 @@
-Understanding the Importance of Goal Setting in the Workplace
-======================================================================================
 
 Goal setting is an essential tool for achieving success in any workplace. It involves identifying specific objectives and creating a plan to achieve them. In this chapter, we will explore why goal setting is important in the workplace.
 

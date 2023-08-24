@@ -1,5 +1,3 @@
-Chapter 2: Defining Goal Setting
-================================
 
 Goal setting is a critical component of success in any organization. It involves identifying specific objectives, developing strategies to achieve those objectives, measuring progress, and continuously learning and adapting. In this chapter, we will explore the overview of goal setting, understanding the science behind goal setting, and assessing your personal approach to goal setting.
 

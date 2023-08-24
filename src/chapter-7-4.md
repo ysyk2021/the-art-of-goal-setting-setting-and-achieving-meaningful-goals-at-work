@@ -1,5 +1,3 @@
-Handling Setbacks and Obstacles
-===================================================================================
 
 Setbacks and obstacles are common challenges that can hinder progress towards achieving goals in the workplace. In this chapter, we will explore strategies for handling setbacks and obstacles as barriers to goal achievement.
 

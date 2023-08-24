@@ -1,5 +1,3 @@
-Addressing Resistance and Skepticism
-========================================================================================
 
 Resistance and skepticism are common barriers to goal achievement in the workplace. In this chapter, we will explore strategies for addressing resistance and skepticism to ensure that employees stay motivated and focused towards achieving their objectives.
 

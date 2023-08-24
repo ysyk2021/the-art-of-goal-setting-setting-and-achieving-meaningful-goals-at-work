@@ -1,5 +1,3 @@
-Understanding the Science Behind Goal Setting
-===============================================================================
 
 Goal setting is a powerful tool for achieving success at work. It involves identifying specific objectives and creating a plan to achieve them. In this chapter, we will explore the science behind goal setting and how it can help you achieve meaningful goals.
 

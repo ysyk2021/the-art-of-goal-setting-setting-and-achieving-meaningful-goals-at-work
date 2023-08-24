@@ -1,5 +1,3 @@
-Chapter 3: Developing a Goal Setting Mindset
-============================================
 
 Developing a goal setting mindset is essential for achieving success in any organization. It involves cultivating techniques to promote a positive attitude, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through goal setting. In this chapter, we will explore these elements of developing a goal setting mindset.
 

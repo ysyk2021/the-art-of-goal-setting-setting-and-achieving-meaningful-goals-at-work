@@ -1,5 +1,3 @@
-Celebrating Goal Achievements
-============================================================================
 
 Celebrating goal achievements is an important part of building a culture of goal setting. It helps to promote a sense of accomplishment and motivates employees to continue setting and achieving goals. In this chapter, we will explore how to celebrate goal achievements.
 

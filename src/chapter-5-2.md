@@ -1,5 +1,3 @@
-Managing Time and Staying Focused
-========================================================================
 
 Executing goals with focus is essential for achieving success in the workplace. In this chapter, we will explore strategies for managing time and staying focused to ensure that employees are making progress towards achieving their objectives.
 

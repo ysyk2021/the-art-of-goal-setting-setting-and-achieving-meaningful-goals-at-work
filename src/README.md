@@ -1,4 +1,4 @@
-# Introduction
+
 
 Setting and achieving meaningful goals is critical for success in any aspect of life, but especially in the workplace. Goals provide direction, motivation, and focus for individuals and organizations alike.
 

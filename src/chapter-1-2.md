@@ -1,5 +1,3 @@
-Common Misconceptions About Goal Setting
-=================================================================
 
 Goal setting is a powerful tool for achieving success at work, but there are also common misconceptions about it. In this chapter, we will explore some of the most common misconceptions about goal setting.
 

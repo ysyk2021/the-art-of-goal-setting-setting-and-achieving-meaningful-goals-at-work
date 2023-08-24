@@ -1,5 +1,3 @@
-Prioritizing and Sequencing Goals
-=======================================================================
 
 Prioritizing and sequencing goals is an important component of effective goal planning. In this chapter, we will explore strategies for prioritizing and sequencing goals to ensure that employees are focusing on the most critical objectives and making progress towards achieving those goals.
 

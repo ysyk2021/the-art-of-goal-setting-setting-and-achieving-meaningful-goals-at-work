@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-====================================================================================
 
 Developing a goal setting mindset and setting realistic goals and objectives is essential for achieving success in the workplace. In this chapter, we will explore strategies for developing a goal setting mindset and setting realistic goals and objectives to ensure that employees are making progress towards achieving their objectives.
 

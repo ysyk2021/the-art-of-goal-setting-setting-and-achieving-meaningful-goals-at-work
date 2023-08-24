@@ -1,5 +1,3 @@
-Chapter 9: Continuous Improvement and Adaptation
-================================================
 
 Setting and achieving goals is an ongoing process that requires continuous improvement and adaptation. In this chapter, we will explore how reflection, self-evaluation, continuously learning and improving, and adapting to changes in the workplace can help achieve long-term success.
 
