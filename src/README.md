@@ -14,3 +14,7 @@ Throughout the book, we will provide practical strategies for setting and achiev
 Finally, we will conclude this chapter by highlighting the key takeaways from the book and discussing how readers can apply the concepts and strategies presented in their own workplaces. Whether you are an entry-level employee or a seasoned professional, this book will provide you with valuable insights and practical tools for setting and achieving meaningful goals at work and achieving success in your career.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
