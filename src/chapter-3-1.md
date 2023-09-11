@@ -1,5 +1,4 @@
-Chapter: Techniques for Cultivating a Goal-Setting Mindset
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies for cultivating a goal-setting mindset in order to effectively set and achieve meaningful goals at work. We will discuss the importance of self-reflection, setting clear and specific goals, creating an action plan, staying committed, and embracing a growth mindset. By implementing these techniques, individuals can develop a proactive and focused mindset that supports their goal attainment.
 

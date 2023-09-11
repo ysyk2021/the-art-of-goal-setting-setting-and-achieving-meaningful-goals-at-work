@@ -1,5 +1,4 @@
-Chapter: Understanding the Science Behind Goal Setting
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the science behind goal setting and explore the psychological and behavioral principles that make goal setting an effective tool for achieving meaningful goals at work. By understanding the underlying science, individuals can harness the power of goal setting to maximize their chances of success.
 

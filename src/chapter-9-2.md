@@ -1,5 +1,4 @@
-Chapter: Continuously Learning and Improving
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuous learning and improvement in the process of setting and achieving meaningful goals at work. We will discuss techniques for fostering a growth mindset, seeking new knowledge and skills, embracing challenges, leveraging feedback, and reflecting on experiences. By implementing these practices, individuals can enhance their capabilities, adapt to change, and continuously progress towards their professional goals.
 

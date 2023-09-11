@@ -1,5 +1,4 @@
-Chapter: Celebrating Goal Achievements
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating goal achievements in the process of setting and achieving meaningful goals at work. We will discuss the significance of celebration, techniques for acknowledging accomplishments, fostering a culture of recognition, and the benefits of celebrating milestones. By implementing these practices, individuals and teams can enhance motivation, boost morale, and sustain long-term success.
 

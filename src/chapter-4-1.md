@@ -1,5 +1,4 @@
-Chapter: Understanding the Elements of Effective Goal Planning
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential elements of effective goal planning in the context of setting and achieving meaningful goals at work. By understanding and incorporating these elements into the goal planning process, individuals and organizations can increase their chances of success and create a roadmap for realizing their aspirations.
 

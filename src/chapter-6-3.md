@@ -1,5 +1,4 @@
-Chapter: Reflecting on Progress and Learning from Experience
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of reflecting on progress and learning from experience in the context of setting and achieving meaningful goals at work. By engaging in regular reflection and leveraging lessons learned, individuals and organizations can enhance their goal-setting processes, optimize performance, and foster continuous improvement.
 

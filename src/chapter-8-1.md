@@ -1,5 +1,4 @@
-Chapter: Encouraging Goal Setting Across the Organization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging goal setting across the organization in the process of setting and achieving meaningful goals at work. We will discuss the benefits of organizational goal setting, techniques for promoting goal setting, creating a supportive environment, and aligning goals with the overall vision. By implementing these practices, organizations can enhance focus, increase accountability, and drive collective success.
 

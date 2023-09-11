@@ -1,5 +1,4 @@
-Chapter: Overview of Goal Setting
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of goal setting in the context of setting and achieving meaningful goals at work. Understanding the fundamentals of goal setting is essential for individuals and organizations to establish clear objectives, focus their efforts, and drive success.
 

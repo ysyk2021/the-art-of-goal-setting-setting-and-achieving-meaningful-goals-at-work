@@ -1,5 +1,4 @@
-Chapter: Celebrating Successes and Recognizing Accomplishments
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating successes and recognizing accomplishments in the context of setting and achieving meaningful goals at work. By acknowledging and celebrating achievements, individuals and organizations can foster motivation, boost morale, and create a positive and rewarding work environment.
 

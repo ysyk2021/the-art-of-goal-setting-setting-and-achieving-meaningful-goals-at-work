@@ -1,5 +1,4 @@
-Chapter: Setting Realistic Goals and Objectives
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting realistic goals and objectives in the process of achieving meaningful outcomes at work. We will discuss strategies for setting SMART goals, considering individual and organizational constraints, aligning goals with values and priorities, and maintaining a flexible mindset. By setting realistic goals and objectives, individuals can enhance their productivity, motivation, and overall success in the pursuit of their professional aspirations.
 

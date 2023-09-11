@@ -1,5 +1,4 @@
-Chapter: Developing Effective Monitoring and Evaluation Systems
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of developing effective monitoring and evaluation systems in the context of goal setting and achieving meaningful goals at work. By establishing robust systems for monitoring progress and evaluating outcomes, individuals and organizations can track their performance, make informed decisions, and optimize their goal achievement processes.
 

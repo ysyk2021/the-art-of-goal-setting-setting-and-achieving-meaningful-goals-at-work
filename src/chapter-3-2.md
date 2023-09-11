@@ -1,5 +1,4 @@
-Chapter: Utilizing Positive Self-Talk and Visualization
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of positive self-talk and visualization in the process of setting and achieving meaningful goals at work. We will discuss how to cultivate a positive mindset, use affirmations, practice visualization techniques, and leverage the mind-body connection for goal success. By implementing these strategies, individuals can enhance their confidence, motivation, and overall performance, ultimately leading to the realization of their professional aspirations.
 

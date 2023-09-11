@@ -1,5 +1,4 @@
-Chapter: Developing SMART Goals
-===============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of developing SMART goals in the context of setting and achieving meaningful goals at work. SMART is an acronym that stands for Specific, Measurable, Achievable, Relevant, and Time-bound. By following the principles of SMART goal setting, individuals and organizations can enhance clarity, focus, and effectiveness in goal attainment.
 

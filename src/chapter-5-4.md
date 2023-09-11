@@ -1,5 +1,4 @@
-Chapter: Overcoming Procrastination and Distractions
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming procrastination and managing distractions in the pursuit of setting and achieving meaningful goals at work. We will discuss techniques for overcoming procrastination, creating a focused work environment, utilizing time management strategies, and fostering self-discipline. By implementing these strategies, individuals can enhance their productivity, maintain focus, and overcome the common challenges that hinder goal achievement.
 

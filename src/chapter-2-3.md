@@ -1,5 +1,4 @@
-Chapter: Assessing Your Personal Approach to Goal Setting
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of assessing your personal approach to goal setting in the context of setting and achieving meaningful goals at work. By conducting a self-assessment, individuals can gain insights into their strengths, weaknesses, and preferences in order to optimize their goal-setting process and increase their chances of success.
 

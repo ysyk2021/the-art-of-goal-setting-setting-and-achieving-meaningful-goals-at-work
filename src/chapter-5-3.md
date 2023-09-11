@@ -1,5 +1,4 @@
-Chapter: Breaking Down Goals into Manageable Steps
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of breaking down goals into manageable steps in the process of setting and achieving meaningful goals at work. By understanding the benefits of breaking down goals, implementing effective strategies for task decomposition, and maintaining momentum throughout the goal attainment process, individuals can increase their chances of success.
 

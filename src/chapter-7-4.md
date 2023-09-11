@@ -1,5 +1,4 @@
-Chapter: Handling Setbacks and Obstacles
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for handling setbacks and overcoming obstacles in the pursuit of setting and achieving meaningful goals at work. We will discuss techniques for reframing setbacks, developing resilience, seeking support, problem-solving, and staying motivated. By implementing these strategies, individuals can navigate challenges with resilience, maintain momentum, and ultimately achieve their professional aspirations.
 

@@ -1,5 +1,4 @@
-Chapter: Prioritizing and Sequencing Goals
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of prioritizing and sequencing goals in the context of setting and achieving meaningful goals at work. By effectively prioritizing and carefully sequencing goals, individuals and organizations can optimize their focus, resources, and efforts to maximize productivity and goal attainment.
 

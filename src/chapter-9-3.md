@@ -1,5 +1,4 @@
-Chapter: Adapting to Changes in the Workplace
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adapting to changes in the workplace when setting and achieving meaningful goals. We will discuss techniques for embracing change, building resilience, fostering flexibility, seeking opportunities in uncertainty, and maintaining a positive mindset. By implementing these practices, individuals can navigate transitions effectively, seize new possibilities, and continue progressing towards their goals in a dynamic work environment.
 

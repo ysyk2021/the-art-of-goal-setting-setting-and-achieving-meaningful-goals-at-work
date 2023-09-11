@@ -1,5 +1,4 @@
-Chapter: Developing Empathy and Compassion through Goal Setting
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful connection between goal setting and the development of empathy and compassion in the workplace. By understanding the impact of empathy and compassion, incorporating these qualities into goal setting practices, and fostering a culture of empathy, individuals can create a more supportive and harmonious work environment while achieving meaningful goals.
 

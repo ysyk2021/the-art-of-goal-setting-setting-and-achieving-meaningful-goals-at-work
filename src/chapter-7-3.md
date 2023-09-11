@@ -1,5 +1,4 @@
-Chapter: Managing Change and Uncertainty
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of effectively managing change and uncertainty in the workplace. We will discuss strategies for embracing change, adapting to uncertainty, maintaining resilience, and developing a proactive mindset. By understanding and navigating the challenges associated with change and uncertainty, individuals can continue setting and achieving meaningful goals amidst a dynamic and ever-evolving work environment.
 

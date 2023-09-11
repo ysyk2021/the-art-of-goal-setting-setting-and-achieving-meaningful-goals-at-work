@@ -1,5 +1,4 @@
-Chapter: Aligning Goals with Organizational Objectives
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of aligning personal goals with organizational objectives in the context of setting and achieving meaningful goals at work. By understanding the significance of goal alignment and implementing strategies to ensure congruence, individuals can contribute effectively to their organization's success.
 
